@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **uzair8825@gamil.com**
 
-- ⚡ Fun fact **I thin I am funny XD**
+- ⚡ Fun fact **I think I am funny XD**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
